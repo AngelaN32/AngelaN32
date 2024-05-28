@@ -1,7 +1,6 @@
 ### Hey, i am Angela 
 ***
 ___
-!https://images.unsplash.com/photo-1716835457716-0e879b88c774?ixlib=rb-4.0.3&q=85&fm=jpg&crop=entropy&cs=srgb&dl=eren-yildiz-mRJgl_a914s-unsplash.jpg
 
 - 👋 Hi, I’m @AngelaN32
 - 👀 I’m interested in ...
